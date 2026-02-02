@@ -1,0 +1,2 @@
+# 68583136-8d97-4995-af44-f5c175d0ea24-hero-2
+Hero section variant 2 for 68583136-8d97-4995-af44-f5c175d0ea24
